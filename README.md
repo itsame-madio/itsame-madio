@@ -1,0 +1,6 @@
+- It's a me Madio
+- I am a roblox developer and I do VEX robotics
+- I know Lua, Python and C++
+- I am learning Java
+- I can colaborate on roblox games or help with VEX code
+- Contact me through Pinkdraggle@gmail.com
